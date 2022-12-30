@@ -2,7 +2,7 @@
 
 -- this is so fucking retarded its like 3k characters long
 -- watch this shit lmfaoo
--- https://foob.cc/ZSAYKSl.mp4
+-- https://imgur.com/a/TAEja5k
 
 --// Obfuscated with LuaSeel 1.1 
 
